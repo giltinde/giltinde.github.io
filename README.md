@@ -1,1 +1,1 @@
-# giltinde.github.io
+# Gil Tinde's personal website
